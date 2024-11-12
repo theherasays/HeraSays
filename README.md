@@ -1,2 +1,2 @@
 www.herasays.com
-Website of Herasays, Streamer & Content Creator
+Website of HeraSays, Streamer & Content Creator
